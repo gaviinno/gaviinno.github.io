@@ -1,7 +1,5 @@
 # GTA 6: Everything We Know So Far  
 
-### gaviinno.github.io
-
 ![Facade](https://www.hindustantimes.com/ht-img/img/2023/10/29/550x309/32143358-gta-setting-birgt-riesige-gefahr-schuld-i_1695890871511_1698600347847.jpg)
 
 (This image is a fan-made art and is not officialized by Rockstar Games.)
